@@ -73,7 +73,7 @@ The exclusive **Soundraw AI promo code** makes this the perfect time to explore 
 
 Soundraw AI is more than just a music generation tool—it’s a gateway to endless creative possibilities. Its AI-powered platform, user-friendly interface, and royalty-free tracks make it an invaluable resource for anyone involved in music production or content creation.  
 
-Don’t miss out on this opportunity to revolutionize your creative process. Visit [Soundraw AI](https://www.soundraw.io) today and use the promo code **SOUNDRAW60** to get started at a fraction of the cost.  
+Don’t miss out on this opportunity to revolutionize your creative process. Visit Soundraw ai today and use the promo code **SOUNDRAW60** to get started at a fraction of the cost.  
 
 ---
 
