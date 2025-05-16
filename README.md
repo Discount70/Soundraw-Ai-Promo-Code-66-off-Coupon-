@@ -3,7 +3,11 @@
 
 In today’s fast-paced digital world, music is no longer just an art form—it’s a necessity for content creators, filmmakers, marketers, and musicians alike. But creating high-quality, royalty-free music can be time-consuming, expensive, and technically challenging. Enter **Soundraw AI**, a groundbreaking platform that leverages artificial intelligence to revolutionize music creation. Whether you’re a seasoned producer or a complete beginner, Soundraw AI makes it easy to generate custom, professional-grade music in minutes
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://soundraw.io/?ref=nheoirzj)
+<a href="https://soundraw.io/?ref=nheoirzj">
+  <img src="https://github.com/user-attachments/assets/b9eb4d08-74cb-4b32-8a87-91394ac31fe6" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
+
+# [Claim Your Coupon Code To Get 85% OFF Discount Code](https://soundraw.io/?ref=nheoirzj) 👆
 
 And here’s the best part: we’ve secured an exclusive **Soundraw AI promo code** to help you get started at an unbeatable price! In this comprehensive guide, we’ll explore everything you need to know about Soundraw AI, how it works, and why it’s a must-have tool for anyone in the creative industry.  
 
